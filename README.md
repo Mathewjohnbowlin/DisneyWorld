@@ -1,1 +1,4 @@
-I dont remeber what this does to be honest, I did it and got the grade
+hello my name is Mj
+I dont want to go into computer science
+I'm gonna be a lawyer
+thank you!
